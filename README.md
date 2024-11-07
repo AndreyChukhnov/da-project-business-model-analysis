@@ -1,1 +1,0 @@
-# da-project-business-model-analysis
